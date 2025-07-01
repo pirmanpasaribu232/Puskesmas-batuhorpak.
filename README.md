@@ -1,1 +1,0 @@
-# Puskesmas-batuhorpak.
